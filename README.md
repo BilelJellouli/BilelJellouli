@@ -6,6 +6,6 @@
 
 📚 In my free time, I love diving into books and exploring new games. I'm also passionate about entrepreneurship and marketing, always looking for opportunities to learn and grow in these areas.
 
-🌐 Fluent in 🇦🇪 Arabic, 🇫🇷 French, and 🇺🇸 English.
+🌐 Fluent in 🇵🇸 Arabic, 🇫🇷 French, and 🇺🇸 English.
 
 🗣️ Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/bileljellouli/). 
